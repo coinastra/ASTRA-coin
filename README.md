@@ -5,3 +5,11 @@ Astra Coin is an experimental digital currency that enables instant, private pay
 www.astracoin.org
 www.astrapool.org
 http://blockexplorer.astracoin.org/
+https://walletastra.com
+
+
+Matar el Tiempo.
+
+The purpose of the AstraCoin is to help entrepreneurs and the self-employed, so they can achieve their goals and objectives. It is a decentralized platform that helps them finding talent for their projects.
+
+www.matareltiempo.com
